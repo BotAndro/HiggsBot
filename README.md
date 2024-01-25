@@ -4,7 +4,9 @@
 
 ## Download
 64BIT: [https://www.mediafire.com/file/tvrnpgut6bgl5i7](https://www.mediafire.com/file/tvrnpgut6bgl5i7)
+
 32BIT (tidak merekomendasikan): [https://www.mediafire.com/file/r24o8tlxb37lv1f](https://www.mediafire.com/file/r24o8tlxb37lv1f)
+
 X86: [https://www.mediafire.com/file/kvadthqqkbhvrgu](https://www.mediafire.com/file/kvadthqqkbhvrgu)
 
 ## Screenshots
