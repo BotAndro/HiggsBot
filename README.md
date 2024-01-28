@@ -1,15 +1,15 @@
-# Higgs Bot - Mainkan Ribuan ID
+b# Higgs Bot - Mainkan Ribuan ID
 
 ## FaFaFa, Jinji, Doufu Auto Spin
 
 [https://www.youtube.com/watch?v=PY0aRit6DpM](https://www.youtube.com/watch?v=PY0aRit6DpM)
 
 ## Download
-64BIT: [https://www.mediafire.com/file/tvrnpgut6bgl5i7](https://www.mediafire.com/file/tvrnpgut6bgl5i7)
+64BIT: [https://www.mediafire.com/file/1ht0yrvvyhyladn](https://www.mediafire.com/file/1ht0yrvvyhyladn)
 
-32BIT (tidak merekomendasikan): [https://www.mediafire.com/file/r24o8tlxb37lv1f](https://www.mediafire.com/file/r24o8tlxb37lv1f)
+32BIT (tidak merekomendasikan): [https://www.mediafire.com/file/tro047xswymub7h](https://www.mediafire.com/file/tro047xswymub7h)
 
-X86: [https://www.mediafire.com/file/kvadthqqkbhvrgu](https://www.mediafire.com/file/kvadthqqkbhvrgu)
+X86: [https://www.mediafire.com/file/tyig81ns7wl8bzf](https://www.mediafire.com/file/tyig81ns7wl8bzf)
 
 ## Screenshots
 ![Game](https://i.ibb.co/5hM9PGj/Higgs-Bot-Game.jpg)
