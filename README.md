@@ -2,7 +2,7 @@ b# Higgs Bot - Mainkan Ribuan ID
 
 ## FaFaFa, Jinji, Doufu Auto Spin
 
-[https://www.youtube.com/watch?v=PY0aRit6DpM](https://www.youtube.com/watch?v=PY0aRit6DpM)
+[https://www.youtube.com/watch?v=h9erAGonYqM](https://www.youtube.com/watch?v=h9erAGonYqM)
 
 ## Download
 64BIT: [https://www.mediafire.com/file/1ht0yrvvyhyladn](https://www.mediafire.com/file/1ht0yrvvyhyladn)
