@@ -1,6 +1,6 @@
 b# Higgs Bot - Mainkan Ribuan ID
 
-## FaFaFa, Jinji, Doufu Auto Spin
+## FaFaFa, Jinji, Doufu, Panda, Dragon, 777 Auto Spin
 
 [https://www.youtube.com/watch?v=h9erAGonYqM](https://www.youtube.com/watch?v=h9erAGonYqM)
 
