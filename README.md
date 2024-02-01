@@ -2,14 +2,14 @@
 
 ## FaFaFa, Jinji, Doufu, Panda, Dragon, 777 Auto Spin
 
-[https://www.youtube.com/watch?v=h9erAGonYqM](https://www.youtube.com/watch?v=h9erAGonYqM)
+[https://www.youtube.com/watch?v=jebVqeZygYI](https://www.youtube.com/watch?v=jebVqeZygYI)
 
 ## Download
-64BIT: [https://www.mediafire.com/file/3a7sv93tpsu9r46](https://www.mediafire.com/file/3a7sv93tpsu9r46)
+64BIT: [https://www.mediafire.com/file/3nlov5mur11koba](https://www.mediafire.com/file/3nlov5mur11koba)
 
-32BIT (tidak merekomendasikan): [https://www.mediafire.com/file/penicvhckb7sqxe](https://www.mediafire.com/file/penicvhckb7sqxe)
+32BIT (tidak merekomendasikan): [https://www.mediafire.com/file/kwv97lyculhdy9h](https://www.mediafire.com/file/kwv97lyculhdy9h)
 
-X86: [https://www.mediafire.com/file/6i2r7aykd8joate](https://www.mediafire.com/file/6i2r7aykd8joate)
+X86: [https://www.mediafire.com/file/um0zwdabqxhibcy](https://www.mediafire.com/file/um0zwdabqxhibcy)
 
 ## Screenshots
 ![Game](https://i.ibb.co/5hM9PGj/Higgs-Bot-Game.jpg)
