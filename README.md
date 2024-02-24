@@ -5,11 +5,11 @@
 [https://www.youtube.com/watch?v=jebVqeZygYI](https://www.youtube.com/watch?v=jebVqeZygYI)
 
 ## Download
-64BIT: [https://www.mediafire.com/file/s6wm8j14l14adq3](https://www.mediafire.com/file/s6wm8j14l14adq3)
+64BIT: [https://www.mediafire.com/file/a8c5nbqbl4rc9lu](https://www.mediafire.com/file/a8c5nbqbl4rc9lu)
 
-32BIT (NO Emulator): [https://www.mediafire.com/file/s6vzt17iy0zki8g](https://www.mediafire.com/file/s6vzt17iy0zki8g)
+32BIT (NO Emulator): [https://www.mediafire.com/file/wump3zjdsjugjv3](https://www.mediafire.com/file/wump3zjdsjugjv3)
 
-X86: [https://www.mediafire.com/file/zqxug73gdmvr94l](https://www.mediafire.com/file/zqxug73gdmvr94l)
+X86: [https://www.mediafire.com/file/grg7q0nsh2hnw35](https://www.mediafire.com/file/grg7q0nsh2hnw35)
 
 ## Screenshots
 ![Game](https://i.ibb.co/5hM9PGj/Higgs-Bot-Game.jpg)
